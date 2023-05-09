@@ -1,6 +1,7 @@
-### Hi there 👋
+### Hi there, it's pati 👋
 
-## Bem-vindo(a) ao perfil de uma aspirante a programadora😁
+## Bem-vindo(a) ao perfil de uma aspirante a programadora apaixonada por Tecnologia😁
+
 
  <div>
    <a href="https://github.com/patiAmaral">
