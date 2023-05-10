@@ -1,6 +1,6 @@
 ### Hi there, it's pati 👋
 
-## Bem-vindo(a) ao perfil de uma aspirante a programadora apaixonada por Tecnologia😁
+## Bem-vindo(a) ao perfil de uma apaixonada estudante de Tecnologia❤️😁
 
 
  <div>
