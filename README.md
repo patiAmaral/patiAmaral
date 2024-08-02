@@ -1,6 +1,6 @@
 ### Hi there, it's pati 🤞❤
 
-## Bem-vindo(a) ao perfil de uma Desenvolvedora front-end | mobile👩‍💻  levemente otaku 🎌  e fiel escudeira da Casa Targaryen🐲
+## Bem-vindo(a) ao perfil de uma Desenvolvedora👩‍💻 levemente otaku 🎌 e fiel escudeira da Casa Targaryen🐲
 
 <div>
    <a href="https://github.com/patiAmaral">
